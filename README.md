@@ -11,4 +11,3 @@
 
 - 00001117871642sp@al.educacao.sp.gov.br
 
-para jobs chame o samuel do 3G
